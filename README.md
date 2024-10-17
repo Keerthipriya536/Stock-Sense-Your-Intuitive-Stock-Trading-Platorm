@@ -1,1 +1,1 @@
-# Stock-Sense-Your-Intuitive-Stock-Trading-Platorm
+# Stock-Sense-Your-Intuitive-Stock-Trading-Platform
